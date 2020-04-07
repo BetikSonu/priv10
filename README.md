@@ -8,9 +8,9 @@ UYARI: Oluşabilecek Sorunlardan Yapımcı Sorumlu Tutulamaz!
 Release Bölümünden Programı İndirip Açmanız Yeterlidir
 Panelde Silmek İstediklerinizi Basıp Silebilirsiniz
 
-Sesli Anlatım Video: 
+Sesli Anlatım Video: https://www.youtube.com/watch?v=fQqxoySJ8yg
 
-Youtube Kanalım: 
+Youtube Kanalım: https://www.youtube.com/channel/UCR-idXrQzkoBha_z6_oFPiw
 
 https://t.me/overclickofficial
 

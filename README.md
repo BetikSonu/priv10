@@ -8,6 +8,10 @@ UYARI: Oluşabilecek Sorunlardan Yapımcı Sorumlu Tutulamaz!
 Release Bölümünden Programı İndirip Açmanız Yeterlidir
 Panelde Silmek İstediklerinizi Basıp Silebilirsiniz
 
+Sesli Anlatım Video: 
+
+Youtube Kanalım: 
+
 https://t.me/overclickofficial
 
 https://t.me/overclickdokuman

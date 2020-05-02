@@ -10,8 +10,3 @@ Panelde Silmek İstediklerinizi Basıp Silebilirsiniz
 
 Sesli Anlatım Video: https://www.youtube.com/watch?v=fQqxoySJ8yg
 
-Youtube Kanalım: https://www.youtube.com/channel/UCR-idXrQzkoBha_z6_oFPiw
-
-https://t.me/overclickofficial
-
-https://t.me/overclickdokuman
